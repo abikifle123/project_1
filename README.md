@@ -5,4 +5,4 @@ Laenor's paramour will die in the end of the episode.
  But Alicent is now actively working against her because her dad warned her that R. would put all her babies to the sword to protect her claim to the throne.
  Because no one would accept R. as queen.
  also, Damon almost kisses R. in front of Viserys during the ceremony. Damon will kill his lady wife. He murders her.
- In the Vale. I want to eat chicken. YAY.
+ In the Vale. I want to eat chicken. YAY. i am. 
